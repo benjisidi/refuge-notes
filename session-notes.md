@@ -45,7 +45,7 @@
 
 - Brigit hasn't heard of "silver beasts" before. However, Gerald's greater restoration restores one of the soldiers **Sgt Merrin**, who reports being attacked by silver bull-like creature who had stinking green breath that petrified its victims.
 
-- Merrin describes the tribe to the North as the **Stonebag**. He says there's been much more trouble with beasts than the Orcs.
+- Merrin describes the tribe to the North as the **Stoneback**. He says there's been much more trouble with beasts than the Orcs.
 
 -  The party continues North with haste and Merrin peels off to head to the northern fort. The rest of us head to the Orc camp.
 
