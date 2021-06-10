@@ -10,10 +10,6 @@
 
 - There's a military funeral held at the castle. Before she leaves, Myra writes a letter
 
-  > Dear Ellie,
-  >
-  > I've had to drop everything and move again. The person who took me in was killed, my workshop's wrecked, and there's nothing keeping me here any more. 
-
 - Yaboi takes Atlas' body back to Shaded Vale and asks Mellora (the sapling) to revive him. She won't/can't - she's against resurrection, and it seems like something is preventing her from becoming too involved. She says Atlas is in the domain of Pelor.
 - The group decide to head North, from fort to fort, to try to find the renegade group of orcs
 - The first fort we come to is run by an upper class twit. It is in a bad state of disrepair.
