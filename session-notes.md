@@ -83,7 +83,7 @@
 - At that time, many orc warriors fought over possession of a symbol of strength - a crown - that sank with the city. If a strong orc wearing Gruumsh's crown were to challenge Durz, he likely could not ignore it. Our plan is to find **Mugaroz**, the missing chief, and retrieve the crown for him.
 - Yaboi suggests if we can make Durz look weak, it might cause him to lose support. Dura says four things make orcs cowards:
   - Refusing a challenge from an equal. Can refuse from lessers without penalty.
-  - Killing using ambush/gorilla tactics. Fighting should be done face to face.
+  - Killing using ambush/guerrilla tactics. Fighting should be done face to face.
   - If a challenge is lost, it is tradition to take the loser slave for a year. There is honour in this. Killing a slave is most dishonourable. Killing prisoners. This is most dishonourable.
   - Having a champion fight in your stead.  This rule is complicated - if you have a good track record of winning fights, sometimes it is ok to use a subordinate. 
 - Dura agrees to remove Jerry's *eye-rot* as an act of good faith. We leave the tent to rest while she does.
