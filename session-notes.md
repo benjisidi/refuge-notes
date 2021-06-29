@@ -69,3 +69,22 @@
 
 - We agree to fetch the chief, and in return Gerry will stay with the orcs and have his parasites tended to. Dura calls the beasts Gorgons, as we hear them approaching. Somebody dispels *Leomund's Tiny Hut* and we prepare to fight...
 
+## Session 4: 29/06/21
+
+- We defeat the Gorgons by banishing two of them, and fighting them two at a time. After the fight Dura gives us permission to rest in the safety of Stoneback.
+- The clan seems to be doing badly - the morale in the camp is poor, people look hungry and uncertain.
+- Jura invites us into her hut. There's a cocktail of strong pungent smells in the air. A calf is part-way butchered against one side, and an array of herbs and spices sits nearby. 
+- She gives Rain some *Krawgug* to help with the after-effects of *Haste*. It puts off tiredness and provides a temporary energy boost (~1hr). Won't help with exhaustion though. She also shows us a berry that we can use to turn a flame cool and purple - it repels the monsters corrupted by the hydra, but won't damage them.
+- Dura tells us Balogog was sent to convince the tribe to join Durz. His army's path will take him right to the tribe's camp, and they'll be destroyed when he arrives unless they leave.
+- Durz marched in and sacked the **Green Pillars** and unearthed the maintainers from there - the Stoneback see this as sacrilege and have refused to join him as a result, as have the shamans.
+- In the Refuge histories, orcs are only really ever mentioned in passing as invaders. According to Dura, previous orcish invasions have been unsuccessful due to the Refuge's magical proficiency - in particular the gigantic manned suits of armour that defend the city.
+- The orcs see everyone in the refuge as invaders. When Lion brought the Eastern races to the peninsula from the calamity, they drove the orcs and others West. The soil in the East is much more fertile - it's easier to develop large settlements there as a result. Eking out a living in the West is a hard life. 
+- After they were pushed West, the orcs built a citadel at the foot of the mountains near Coldhome. **Gruumsh One-Eye**, god of orcs brought an earthquake and sank the city, as punishment for straying from the orcish way.
+- At that time, many orc warriors fought over possession of a symbol of strength - a crown - that sank with the city. If a strong orc wearing Gruumsh's crown were to challenge Durz, he likely could not ignore it. Our plan is to find **Mugaroz**, the missing chief, and retrieve the crown for him.
+- Yaboi suggests if we can make Durz look weak, it might cause him to lose support. Dura says four things make orcs cowards:
+  - Refusing a challenge from an equal. Can refuse from lessers without penalty.
+  - Killing using ambush/gorilla tactics. Fighting should be done face to face.
+  - If a challenge is lost, it is tradition to take the loser slave for a year. There is honour in this. Killing a slave is most dishonourable. Killing prisoners. This is most dishonourable.
+  - Having a champion fight in your stead.  This rule is complicated - if you have a good track record of winning fights, sometimes it is ok to use a subordinate. 
+- Dura agrees to remove Jerry's *eye-rot* as an act of good faith. We leave the tent to rest while she does.
+
