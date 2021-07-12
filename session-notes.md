@@ -112,3 +112,13 @@
 - We continue to follow Mugaroz' tracks into a particularly narrow pass in the valley. Lit notices something shifting in the area. Leeroy sends a silent image of Brigit walking down the road, and leaping out of the vegetation comes an 11ft tall, hulking ogre-like figure.
 - As we approach, two stone giants and a handful of ogres ambush us. We briefly fight them, then make our escape using a pair of hypnotic patterns.
 
+## Session 6: 12/06/21
+
+- Rain catches up with us as the giants run in pursuit. We decide to run after Balogog's crew and arrive at a bluff where they're waiting to ambush us. 
+- During the ensuing battle, Balogog is killed. We're forced to flee the bluff as the stone giants arrive and begin to shell us with rocks. We run West, towards where we know the hydra is meant to be.
+- Rain finds an entrance to a tunnel that we duck into. While heading further in, Leeroy notices one of the pillars in it has been carved.  In the distance, we can see an eerie purple glow.
+- We find more debris - the remainder of what looks like structures and paved floors. Rain scouts ahead and finds a (very pretty!) large cavern. The floor is covered in a shallow layer of water that drains into three sinkholes. The ceiling contains several large holes.
+- A rocky plinth sits in the centre of the room. Four crystals give off a feint violet light, sitting in the remains of a building - little more than two walls. Inside it sits a _huge_ pile of treasure. Rain thinks back to a conversation she's had back at camp and deduces this is probably a dragon's hoard. She hears a voice having what sounds like a conversation in draconic.
+- After some discussion, we decide the best course of action is for Rain to go and talk to the (what turns out to be Copper) dragon. As the conversation starts, it transpires there are three of them.
+- Rain approaches and begins to talk...
+
