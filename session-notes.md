@@ -84,7 +84,31 @@
 - Yaboi suggests if we can make Durz look weak, it might cause him to lose support. Dura says four things make orcs cowards:
   - Refusing a challenge from an equal. Can refuse from lessers without penalty.
   - Killing using ambush/guerrilla tactics. Fighting should be done face to face.
-  - If a challenge is lost, it is tradition to take the loser slave for a year. There is honour in this. Killing a slave is most dishonourable. Killing prisoners. This is most dishonourable.
+  - If a challenge is lost, it is tradition to take the loser slave for a year. There is honour in this. Killing a slave or prisoners is most dishonourable.
   - Having a champion fight in your stead.  This rule is complicated - if you have a good track record of winning fights, sometimes it is ok to use a subordinate. 
 - Dura agrees to remove Jerry's *eye-rot* as an act of good faith. We leave the tent to rest while she does.
+
+## Session 5: 05/07/21
+
+- Rain sees a black Tabaxi in the orc camp and leaves to go and talk to him.
+- Brigit and Yaboi butcher the Gorgons both for food for the camp and so that Yaboi can investigate the a petrification antidote.
+- With the aid of *tongues*, Leeroy heads off into camp to look for advice about the hydra.
+  - He gets directed to a hunter's tent, inhabited by "the scout".
+  - She draws Leeroy a map. The hydra is somewhere at the end of a long valley.
+  - It probably stays inside during the day, out of the heat.
+  - She warns of other monsters in that valley, too.
+- **Shel**, the hunter, asks us to point out that she helped if we manage to take down the hydra. It seems she's got lower prestige than the rest of the orcs as a result of being a sneak
+- She mentioned some orcs vanished with Durz' men when they left
+- A young orc comes over and tries to take the substance Yaboi has just extracted from the gorgon. Brigit hands him some lubricant oil and claims it's alcohol. He drinks it and has a bad time.
+- Gerald successfully gives everyone evils and keeps the orcs from causing trouble.
+- Brigit crafts Shel some heavy piercing arrows to help with the gorgons. Leeroy takes them to her and convinces her to come with us as far as the valley.
+- In the morning, Yaboi makes a gorgon stew for the orcs. Turns out orcs *really* like food. Especially Yaboi's cooking.
+- Before we leave we decide to check out Durz' encampment. Shel pretty easily picks up their trail, and Brigit finds 3 empty spell scroll cases (1 dispel magic, 2 dimension doors?).
+- We follow the trail up to the mountains' edge. The grass here is taller. It looks thicker and heavier, and has a sheen to it. It becomes clear this is where the bladed steppes gets its name. Shel makes a prayer to Gruumsh before we head into the grass. Yaboi and Leeroy get on Loki, and Gerald puts on armoured boots to protect his legs.
+- While flying over the grass, Leeroy realizes the valley is literally hewn out of the mountain - it isn't natural.
+- Shel says there used to be a city in these mountains, and that the carving is something to do with that. She leaves us to head back to camp. Before she leaves, she points out two sets of tracks - one old, probably Mugaroz, the other fresh - no more than a few hours old.
+- Yaboi leads the party along the tracks until we reach a point where Balogog's crew's tracks get disrupted - they appear to scatter. Looking around, we find 7 individual sets of tracks. 6 appear to reunite further on and we track the remaining one to a patch of bloodstained grass. 
+- Yaboi notices some of the tracks are much, much larger and have odd jagged edges that don't seem entirely natural.
+- We continue to follow Mugaroz' tracks into a particularly narrow pass in the valley. Lit notices something shifting in the area. Leeroy sends a silent image of Brigit walking down the road, and leaping out of the vegetation comes an 11ft tall, hulking ogre-like figure.
+- As we approach, two stone giants and a handful of ogres ambush us. We briefly fight them, then make our escape using a pair of hypnotic patterns.
 
