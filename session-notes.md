@@ -122,3 +122,26 @@
 - After some discussion, we decide the best course of action is for Rain to go and talk to the (what turns out to be Copper) dragon. As the conversation starts, it transpires there are three of them.
 - Rain approaches and begins to talk...
 
+## Session 7: 19/07/21
+
+- The three dragons are called **Rah**, **Do** and **Ghi**, and one of each is meant to be **quick**, **strong** and **clever**.
+- Looking with truesight, Brigit can see they have been shape-changed somehow, but it's unclear what their original form was.
+- Rents small and large around the sinkhole - clawmarks. Larger rents are old. Ancient signs of a struggle. Blasting marks from fire, acid and disintegration. Ancient looking orc armour swirling around the outside.
+- Yaboi invesitgates where one of the dragons has been sleeping and finds a purple cloth and a scrap of paper with ancient orcish writing - "*clever, strong and quick*". There's also a book of children's stories, ancient orcish legends, and tea recipes. All unfathomably ancient. He also finds a large pair of copper spectacles - dragon sized. On them, there are the remnants of dragon scales. Checking the dragons' snouts, they all look like they've been wearing them.
+- Yaboi casts dispel magic on one of the dragons and its form blurs for a second before resolidifying - it seems some nearby object immidiately recast the spell.
+- In the south east sleeping area is covered in recent claw-marks. There's a peice of metal that looks like its been used as a chew toy by something very strong. There's also a piece of purple cloth surrounding an ancient piece of parchment with some orcish writing on it. It says *The Cerberant must no longer harass our borders*.
+- Brigit puts on the *eyes of the eagle* and has a very close look at the horde. Dragons have their own hordes; even young ones. This horde is much too large for young dragons to have. There's the side of a skeleton torso buried under it. The edge of a purple robe is also visible.
+- Four sources of magic in the horde. 2 abjurations and 1 transmutation. One small, 1ft long rod-shaped *extremely* bright transmutation magic object. 
+- Brigit convinces the dragons to let her look at it. On closer inspection, she recognizes it as a *phylactery* - an object used to preserve fragments of a soul, or extremely powerful spells. She breaks it with *shatter* and the dragons morph back into a gigantic three-headed copper dragon.
+- The dragon calls itself **Doghirah**. He blames ***Ushug*** - an arrogant wizard back in the old city. They've been split into three for 2548 years. He offers us some of his horde as payment, and says we must simply call his name if we ever need him.
+- Looking around the cave, we find a last old scrap of parchment: *Cleaver is ready. I don't know if it will work. We must hide the focus where it can't easil-*.
+- With Doghirah having burst through the roof, the cave begins to collapse and we hastily make our way out. We see the floor of the cave collapses away and falls. Yaboi hears a deep, rumbling scream as it hits whatever is below.
+- Making our way out to the surface, we find ourselves at the end of the valley - vertical, gnarled walls stop abruptly in a point - carved, rather than made by weathering.
+- Almost at the tip of the point is a large cave entrance, surrounded by seven Orcish statues. Lit flies over there and hears cries of desperation in Orcish, and we head over to investigate. Arriving at the entrance, we can hear an orc crying in pain and another shouting "*Leave her alone! Eat me instead you fowl beast!*"
+- Entering we find an orc pinned to the wall by a thick layer of slime screaming and shouting. Around him is more slime that once held more orcs.
+- We find two hydras and kill them, saving Mugaroz by polymorphing him into a giant ape
+- There's a pool in the cave that has a portal to the plane of water, which is where we think the hydras are from
+
+## Session 8: 05/08/21
+
+- 
